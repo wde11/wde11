@@ -5,3 +5,4 @@
 * I like to edit, graphics design, and create music
 * Learning Adobe After Effects, Web Development and Design
 
+![Shai](https://media.tenor.com/FwAAAPo/shai-consistent-krazykat123.gif)
