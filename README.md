@@ -3,7 +3,8 @@
 * 20
 * Junior year in College, University of the Immaculate Conception
 * I like to edit, graphics design, and create music
-* Learning Adobe After Effects, Web Development and Design
+* Learning Adobe After Effects, Web Development and Linux!
+* Audio Engineer & Music Producer
 ---
 <p align="center">
 <img src="https://media1.tenor.com/m/nOl96p3ylUMAAAAC/shai-chet-shai-mvp.gif" alt="Shai" width="48%">
