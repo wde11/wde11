@@ -1,7 +1,7 @@
 ## wsg
 
 * 21
-* Junior year in College, University of the Immaculate Conception
+* Senior year in College, University of the Immaculate Conception
 * I like to edit, graphics design, and create music
 * Learning Adobe After Effects, Web Development and Linux!
 * Audio Engineer & Music Producer
